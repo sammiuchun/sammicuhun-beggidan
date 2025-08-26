@@ -1,1 +1,1 @@
-# sammicuhun-beggidan
+# sammi-uchun-beggidan
